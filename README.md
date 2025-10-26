@@ -2,7 +2,7 @@ Official Privacy Policy for the game Thornetica by Forbidden Candy.
 
 ## Privacy Policy for Thornetica
 
-**Last updated:** [Insert Date]
+**Last updated:** 26/20/2025
 
 Forbidden Candy built the **Thornetica** game as a commercial product. This Service is provided by Forbidden Candy and is intended for use as is.
 
